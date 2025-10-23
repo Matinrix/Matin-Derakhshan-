@@ -1,4 +1,4 @@
-- °👋🏻° Hi, I’m @Matin-jpg
+- °👋🏻° Hi, I’m @Matinrix
 - °👀° I’m interested in keyboards
 - °🌱° I’m currently learning Java
 - °💞️° I’m looking to collaborate on 
